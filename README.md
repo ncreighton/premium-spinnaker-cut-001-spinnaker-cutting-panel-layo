@@ -1,0 +1,2 @@
+# premium-spinnaker-cut-001-spinnaker-cutting-panel-layo
+Stop guessing and start cutting with precision — your spinnaker panel layout workflow deserves a system that eliminates costly mistakes and saves hours of rework.  This Notion template transforms your spinnaker design and cutting process into a streamlined, repeatable craft. With integrated checklists, measurement logs, and visual layout boards, yo
